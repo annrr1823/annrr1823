@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @annrr1823
 - 👀 I’m interested in painting.
-- 🌱 I’m currently learning how to !code.Fresh as I am,I will try to elevate my ability.(Fighting!
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning how to code.Fresh as I am,I will try to elevate my ability.(Fighting!
+- 💞️ I’m looking to collaborate on ...(I do't know......
 - 📫 How to reach me 📧tut555697@gmail.com  
 
 <---
